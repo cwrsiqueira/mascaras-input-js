@@ -3,6 +3,7 @@
 ### No canto superior direito desta tela, deixe uma estrela no projeto. Obrigado!
 
 ## Código do vídeo do youtube
+- https://youtube.com/shorts/dN-vtIjk520
 
 Não esqueça de deixar seu Like, é muito importante pra um canal que está começando, e me motiva a compartilhar mais conteúdos gratuitos e de qualidade. 
 
